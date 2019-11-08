@@ -4,7 +4,9 @@ Y esto es lo que traigo de mi costa para que todo el mundo lo baile y que nadie 
 
 Y vámonos todos con el baile costeño pues se va
 
-Ay, arremángala, arrempújala
+AYYYYYYYYYYYYYYYYYYYY 
+
+Arremángala, arrempújala
 
 Arremángala, arrempújala
 
